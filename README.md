@@ -1,6 +1,6 @@
 # Watch how to make Easy chocolate chip cookies
 
-![easy delicious chocolate chip cookies](/images/Skærmbillede 2020-10-13 kl. 12.58.00.png "chocolate chip cookies")
+![easy delicious chocolate chip cookies](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.bettycrocker.com%2Frecipes%2Fultimate-chocolate-chip-cookies%2F77c14e03-d8b0-4844-846d-f19304f61c57&psig=AOvVaw3G1_3-BqahGvQf31z3OweX&ust=1602673408558000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIDcnOy1sewCFQAAAAAdAAAAABAD)
 
 
 ## Ingredients
